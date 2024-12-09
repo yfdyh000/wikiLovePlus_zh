@@ -1,0 +1,1 @@
+* [Wikipedia:互助客栈/其他#维基友爱有可能更新吗？](https://zh.wikipedia.org/wiki/Wikipedia:%E4%BA%92%E5%8A%A9%E5%AE%A2%E6%A0%88/%E5%85%B6%E4%BB%96#%E7%BB%B4%E5%9F%BA%E5%8F%8B%E7%88%B1%E6%9C%89%E5%8F%AF%E8%83%BD%E6%9B%B4%E6%96%B0%E5%90%97%EF%BC%9F)
